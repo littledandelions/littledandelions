@@ -24,7 +24,7 @@
  CREDIT: @scagsaurus , @zivxx .ᐟ𝜗𝜚 and @onlypetcode on pinterest / @NightCrewVR on YT / Iinquint on X . (≧∇≦)
 ![Image](https://github.com/user-attachments/assets/e7e283c5-6474-4c77-9290-b6bc20f5ab4e)
 
-<img width="1197" height="614" alt="Image" src="https://github.com/user-attachments/assets/750bff6b-beb4-43a9-a5ba-a400c038a043" />
+<img width="1437" height="721" alt="Image" src="https://github.com/user-attachments/assets/e2e13cd4-dc89-407b-a064-6c838be1af61" />
 
 https://github.com/user-attachments/assets/e3f7b579-ed73-405b-a084-176e24e93232
 
