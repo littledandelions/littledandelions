@@ -15,7 +15,10 @@
               >Im a BIG fan of shelly (DW), any hate word on shelly or shellvision might upset me.                              
               >Plz DONT send me party notification / friend request ( unless we've have talked/know each other before ) on pony town.  
               >Being shouted at, ignored, or treated carelessly about my feelings can easily make me sad.
-              >Anyone can c+h me ( unless those in the DNI list )
+              >Anyone can c+h me ( unless those in the DNI list ).
+              >I love drawing, and I have many art styles.
+              >Please don’t copy or take inspo from my skins.
+
 ![d821d83bf32bd0c41ab54266180e1669](https://github.com/user-attachments/assets/b0e70a11-e7fb-4ddd-a521-e627e4f2e2a4)
 <!--
 
