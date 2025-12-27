@@ -19,6 +19,7 @@
               >I love drawing, and I have many art styles.
               >Please don’t copy or take inspo from my skins.
 
+<img width="1126" height="501" alt="Image" src="https://github.com/user-attachments/assets/2367b6c1-f53a-4c2d-9cd5-84463ac18a88" />
 
  CREDIT: @scagsaurus and @onlypetcode on pinterest.
 ![Image](https://github.com/user-attachments/assets/e7e283c5-6474-4c77-9290-b6bc20f5ab4e)
