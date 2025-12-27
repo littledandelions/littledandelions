@@ -18,7 +18,5 @@
               >Anyone can c+h me ( unless those in the DNI list ).
               >I love drawing, and I have many art styles.
               >Please don’t copy or take inspo from my skins.
-
-![d821d83bf32bd0c41ab54266180e1669](https://github.com/user-attachments/assets/b0e70a11-e7fb-4ddd-a521-e627e4f2e2a4)
-<!--
-
+ CREDIT: @scagsaurus and @onlypetcode on pinterest.
+![Image](https://github.com/user-attachments/assets/e7e283c5-6474-4c77-9290-b6bc20f5ab4e)
