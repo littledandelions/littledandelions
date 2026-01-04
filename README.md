@@ -1,7 +1,10 @@
+<img width="870" height="434" alt="Image" src="https://github.com/user-attachments/assets/085af4f9-0719-4c68-8c99-9fa63f42f8a7" />
+ 
+ 
  ![68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d626c61636b2d736833337026636f6c6f723d666664346534267374796c653d666c6174266c6162656c3d254630253946253844254142254630253946253844253933](https://github.com/user-attachments/assets/c7407582-c5e1-4040-b93c-a208fef1ca6f)                
-                             ────୨ৎ──── wellcome to my README ────୨ৎ────
+                            
                                 
-                                  • DNI LIST:
+                                       ────୨ৎ──── • DNI LIST: ────୨ৎ────
             
               >racist people
               >homophobic people
@@ -21,7 +24,7 @@
 
 <img width="1126" height="501" alt="Image" src="https://github.com/user-attachments/assets/2367b6c1-f53a-4c2d-9cd5-84463ac18a88" />
 
-<img width="870" height="434" alt="Image" src="https://github.com/user-attachments/assets/085af4f9-0719-4c68-8c99-9fa63f42f8a7" />
+
 
  CREDIT: @scagsaurus , @zivxx .ᐟ𝜗𝜚 and @onlypetcode on pinterest / @NightCrewVR on YT / Iinquint on X . (≧∇≦)
 ![Image](https://github.com/user-attachments/assets/e7e283c5-6474-4c77-9290-b6bc20f5ab4e)
