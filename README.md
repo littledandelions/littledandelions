@@ -1,4 +1,4 @@
-<img width="685" height="765" alt="Image" src="https://github.com/user-attachments/assets/e88aa56c-bdfa-48a4-8fd7-30e76b2a6dc3" />                        
+<img width="725" height="811" alt="Image" src="https://github.com/user-attachments/assets/52f4ad3d-3d57-468b-948c-5a0177a72901" />                 
                                 
       
                                        ────୨ৎ──── • DNI LIST: ────୨ৎ────
