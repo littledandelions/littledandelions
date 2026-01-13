@@ -18,8 +18,25 @@
               >Anyone can c+h me PLZ i love to cuddle.  💝  ( unless those in the DNI list ).
               >I love drawing, and I have many art styles.
               >Please don’t copy or take inspo from my skins. 
-
-
+                                
+                                  • Fandoms
+              >Dandy's world
+              >Murder Drones
+              >BFDI
+              >Little Nightmares
+              >hazbin hotel
+              >Helluva Boss
+              >Forsaken
+              >Adventure Time
+              >Steven Universe
+              >Bad Things
+              >Alien Stage
+              >Dream world
+              >The Amazing World of Gumball
+              >The Amazing Digital Circus
+              >Lifesteal smp
+                                
+ 
 https://github.com/user-attachments/assets/25b300f6-3181-45eb-97b9-ee4dafb8d367
 
 
