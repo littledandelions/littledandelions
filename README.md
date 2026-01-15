@@ -38,6 +38,8 @@
               >Lifesteal smp
                                 
  
+![Image](https://github.com/user-attachments/assets/a1784994-bea3-4de2-9fd7-8d7973e944cc)
+
 https://github.com/user-attachments/assets/25b300f6-3181-45eb-97b9-ee4dafb8d367
 
 
