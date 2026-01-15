@@ -24,6 +24,7 @@
               >Murder Drones
               >BFDI
               >Little Nightmares
+              >Beastars
               >hazbin hotel
               >Helluva Boss
               >Forsaken
