@@ -36,7 +36,7 @@
               >The Amazing World of Gumball
               >The Amazing Digital Circus
               >Lifesteal smp
-                                
+ multifandom yes ...                           
  
 ![Image](https://github.com/user-attachments/assets/a1784994-bea3-4de2-9fd7-8d7973e944cc)
 
