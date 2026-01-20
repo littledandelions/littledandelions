@@ -26,7 +26,6 @@
               >Little Nightmares
               >Beastars
               >hazbin hotel
-              >Helluva Boss
               >Forsaken
               >Adventure Time
               >Steven Universe
@@ -36,8 +35,8 @@
               >The Amazing World of Gumball
               >The Amazing Digital Circus
               >Lifesteal smp
-              multifandom yes ...                           
- 
+              multifandom yes ...               
+              
 ![Image](https://github.com/user-attachments/assets/a1784994-bea3-4de2-9fd7-8d7973e944cc)
 
 ![Image](https://github.com/user-attachments/assets/499e0352-53e2-4634-b28d-2da6d5ea0767)
