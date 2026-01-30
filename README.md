@@ -1,6 +1,7 @@
-<img width="725" height="811" alt="Image" src="https://github.com/user-attachments/assets/52f4ad3d-3d57-468b-948c-5a0177a72901" />                 
                                 
-      
+ <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/8cfac1d8-cb8d-4acd-8d2f-7b6fcd80af7e" />                         
+                                    
+                                       
                                        ────୨ৎ──── • DNI LIST: ────୨ৎ────
             
               >racist people
@@ -37,11 +38,10 @@
               
               multifandom yes ...               
               
-![Image](https://github.com/user-attachments/assets/a1784994-bea3-4de2-9fd7-8d7973e944cc)
 
-![Image](https://github.com/user-attachments/assets/499e0352-53e2-4634-b28d-2da6d5ea0767)
-
-https://github.com/user-attachments/assets/25b300f6-3181-45eb-97b9-ee4dafb8d367
+<img width="725" height="811" alt="Image" src="https://github.com/user-attachments/assets/52f4ad3d-3d57-468b-948c-5a0177a72901" />                 
+ 
+ https://github.com/user-attachments/assets/25b300f6-3181-45eb-97b9-ee4dafb8d367
 
 
  
