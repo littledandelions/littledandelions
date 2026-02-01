@@ -20,6 +20,21 @@
               >I love drawing, and I have many art styles.
               >Please don’t copy or take inspo from my skins. 
                                 
+                                 
+                                  
+                                  
+                                  
+<img width="1380" height="413" alt="Image" src="https://github.com/user-attachments/assets/9fe83b00-1de3-4cad-8313-b5ee6c3867d8" />                                
+                                  
+                                  
+                                  
+                                  
+                                  
+                                  
+                                  
+                                  
+                                  
+                                  
                                   • Fandoms
               >Dandy's world
               > The freak circus
