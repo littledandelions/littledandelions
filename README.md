@@ -1,23 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/95afea53-922a-40aa-997e-6f60911c8866)                            
                                         
                                         
-                                         ────୨ৎ──── • DNI LIST: ────୨ৎ────
-            
-              >racist people
-              >homophobic people
-              >darkshippers
-              >pro shipper
-              >problematic people
-              >WEIRD fruitcake shipper
-              >shellvision HATER ( its ok that u dont ship it just dont hate on it 🎀 )
-                                
-                                  • things about me
-              >Im a BIG fan of shelly (DW), any hate word on shelly or shellvision might upset me.                              
-              >Plz DONT send me party notification / friend request ( unless we've have talked/know each other before ) on pony town. 
-              >Being shouted at, ignored, or treated carelessly about my feelings can easily make me sad.
-              >Anyone can c+h me PLZ i love to cuddle.  💝  ( unless those in the DNI list ).
-              >I love drawing, and I have many art styles.
-              >Please don’t copy or take inspo from my skins. 
+                                    
                                 
                                  
                                   
