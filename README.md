@@ -1,20 +1,25 @@
+<img width="500" height="75" alt="Image" src="https://github.com/user-attachments/assets/e16e1fda-e828-4280-bda2-7ca199116b23" />
+
+<img width="500" height="75" alt="Image" src="https://github.com/user-attachments/assets/ca5d8c12-59f5-45dc-be49-815cb8275972" />
+
+
 ![Image](https://github.com/user-attachments/assets/95afea53-922a-40aa-997e-6f60911c8866)                            
                                         
+  ![Image](https://github.com/user-attachments/assets/fefb2cee-abb1-43c3-9b1b-1e09a3a3c62f)  
+
+                      
 
 
-<img width="1380" height="413" alt="Image" src="https://github.com/user-attachments/assets/9fe83b00-1de3-4cad-8313-b5ee6c3867d8" />                                
+![Image](https://github.com/user-attachments/assets/28e94f43-4c48-4d6d-b1b2-83a6d8ad2702)                  <img width="1200" height="600" alt="Image" src="https://github.com/user-attachments/assets/dfad6363-ee9a-4e9e-9002-239e2d7f944e" />                          
                                   
-        ![Image](https://github.com/user-attachments/assets/28e94f43-4c48-4d6d-b1b2-83a6d8ad2702)
 
-<img width="1080" height="608" alt="Image" src="https://github.com/user-attachments/assets/f0672176-13c4-4ce4-9753-22af4875fc24" />
 
-<img width="1200" height="600" alt="Image" src="https://github.com/user-attachments/assets/dfad6363-ee9a-4e9e-9002-239e2d7f944e" />                          
+
+
+<img width="1200" height="600" alt="Image" src="https://github.com/user-attachments/assets/65a44361-581f-463c-9513-31f490ae4357" />                                
                                   
                                   
-                                  
-                                  
-                                  
-                                  
+
                                   
                                   
                                   • Fandoms
