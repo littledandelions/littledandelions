@@ -1,21 +1,8 @@
   <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/8cfac1d8-cb8d-4acd-8d2f-7b6fcd80af7e" />                         
-                                    
-  ![Image](https://github.com/user-attachments/assets/f5f2349e-72ee-4c56-a7e3-3942799abeb4)                                ![Image](https://github.com/user-attachments/assets/69f9dcd6-b4a6-458a-88d8-c9591715e0ae)
-                                     
-  ![Image](https://github.com/user-attachments/assets/bc6f8eb4-aefe-4478-9bba-81adb2cbdfcd)                                ![Image](https://github.com/user-attachments/assets/ed8730e2-c209-4bee-a840-d6cdfb0d026c)
-                                     
-  ![Image](https://github.com/user-attachments/assets/84a99ab3-3c1b-45c7-8a0d-5702ba81312b)                                ![Image](https://github.com/user-attachments/assets/ab604125-fe11-4e5f-b4c8-9f936995f28d)   
-                                       
-                                      
-                                      
-                                       
-                                       
-                                       
-                                       
-                                       
-                                       
-                                       
-                                       ────୨ৎ──── • DNI LIST: ────୨ৎ────
+                    
+![Image](https://github.com/user-attachments/assets/f5f2349e-72ee-4c56-a7e3-3942799abeb4)                                ![Image](https://github.com/user-attachments/assets/69f9dcd6-b4a6-458a-88d8-c9591715e0ae)                                        
+                                        
+                                         ────୨ৎ──── • DNI LIST: ────୨ৎ────
             
               >racist people
               >homophobic people
@@ -57,5 +44,8 @@ CREDIT: linquint on pinterest
  https://github.com/user-attachments/assets/25b300f6-3181-45eb-97b9-ee4dafb8d367
 
 
+![Image](https://github.com/user-attachments/assets/bc6f8eb4-aefe-4478-9bba-81adb2cbdfcd)                                ![Image](https://github.com/user-attachments/assets/ed8730e2-c209-4bee-a840-d6cdfb0d026c)
+                                     
+![Image](https://github.com/user-attachments/assets/84a99ab3-3c1b-45c7-8a0d-5702ba81312b)                                ![Image](https://github.com/user-attachments/assets/ab604125-fe11-4e5f-b4c8-9f936995f28d)
  
 
