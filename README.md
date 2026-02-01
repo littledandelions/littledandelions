@@ -2,7 +2,19 @@
                                     
   ![Image](https://github.com/user-attachments/assets/f5f2349e-72ee-4c56-a7e3-3942799abeb4)                                ![Image](https://github.com/user-attachments/assets/69f9dcd6-b4a6-458a-88d8-c9591715e0ae)
                                      
+                                 
+                                     
+                                       
+                                       
                                       
+                                      
+                                       
+                                       
+                                       
+                                       
+                                       
+                                       
+                                       
                                        ────୨ৎ──── • DNI LIST: ────୨ৎ────
             
               >racist people
