@@ -29,3 +29,5 @@
               multifandom yes ...               
 
 ![Image](https://github.com/user-attachments/assets/0115c825-332a-4ca8-9fe1-09ceae38505f)
+
+check my strawpage for more info .
