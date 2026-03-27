@@ -1,10 +1,4 @@
- 
-
-![Image](https://github.com/user-attachments/assets/95afea53-922a-40aa-997e-6f60911c8866)                            
-                                        
- 
-  
-  
+ https://github.com/user-attachments/assets/44600284-32d7-43f8-bde9-ae2470af8797
 
 
 
@@ -28,6 +22,6 @@
               
               multifandom yes ...               
 
-![Image](https://github.com/user-attachments/assets/0115c825-332a-4ca8-9fe1-09ceae38505f)
+
 
 check my strawpage for more info .
