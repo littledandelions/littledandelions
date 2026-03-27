@@ -8,7 +8,7 @@
 
 ![tumblr_ad742677b37be4915307d8adff1b9d60_2c65a407_250](https://github.com/user-attachments/assets/c8fff2e8-97ee-4ec5-b727-de600aef24b5)  <img width="250" height="146" alt="tumblr_de747ae57d54e3092a2f919c5dab680d_d2f693f0_250" src="https://github.com/user-attachments/assets/1849595d-ded8-436a-80ad-60d0b7c6f9aa" />  <img width="100" height="100" alt="tumblr_565d52cb1a46100a880dc27a715e62c8_c4b561a0_100" src="https://github.com/user-attachments/assets/a724dfea-704e-4491-be82-4affb70dac9e" />  <img width="100" height="100" alt="tumblr_fdf37530a0b3c58c2d010f01b7672bee_b1f13374_100" src="https://github.com/user-attachments/assets/3fb81b23-6450-402d-9b67-64242d01ebd5" />  <img width="100" height="100" alt="tumblr_fb55ecf85962c11298bf6a5ee39f7723_bf4d5072_100" src="https://github.com/user-attachments/assets/91a24525-2917-4742-9543-9532b607c5f8" />
 
-<img width="461" height="461" alt="image" src="https://github.com/user-attachments/assets/69b3ff3e-c5c1-469c-bf99-d67e42fa2473" />
+
 
 
 CREDIT: @selysie , @diveinity on Tumblr ^o^
