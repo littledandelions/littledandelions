@@ -14,5 +14,21 @@
 
 CREDIT: @selysie , @diveinity on Tumblr ^o^
 
-
+• Fandoms
+ >Dandy's world
+ >The freak circus
+ >Murder Drones
+ >BFDI
+ >Little Nightmares
+>Beastars
+>>hazbin hotel
+>Forsaken
+>Adventure Time
+>Steven Universe
+>Alien Stage
+>Dream world
+>The Amazing World of Gumball
+>The Amazing Digital Circus
+>Lifesteal smp
+>multifandom yes ...
 
