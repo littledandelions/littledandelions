@@ -20,8 +20,10 @@ CREDIT: @selysie , @diveinity on Tumblr ^o^
  >Murder Drones,
  >BFDI,
  >Little Nightmares,
+ > jujutsu kaisen,
+
 >Beastars,
->>hazbin hotel,
+>hazbin hotel,
 >Forsaken,
 >Adventure Time,
 >Steven Universe,
