@@ -34,3 +34,4 @@ CREDIT: @selysie , @diveinity on Tumblr ^o^
 >Lifesteal smp,
 >multifandom yes ...
 
+ check strawpage for more info!
