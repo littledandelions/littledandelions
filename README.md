@@ -36,3 +36,4 @@ CREDIT: @selysie , @diveinity on Tumblr ^o^
 
  check strawpage for more info! ![Shelly_Render webp](https://github.com/user-attachments/assets/2893c893-5d60-4e90-8785-c479f31187b9)
 
+![Image](https://github.com/user-attachments/assets/35b0d876-101d-4bdb-80c3-0a0e3f7b49e5)
