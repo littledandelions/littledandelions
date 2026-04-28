@@ -12,7 +12,7 @@
 
 
 
-CREDIT: @selysie , @diveinity on Tumblr ^o^
+CREDIT: @selysie on Tumblr ^o^
 
 • Fandoms
  >Dandy's world,
