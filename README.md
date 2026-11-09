@@ -23,15 +23,12 @@ CREDIT: @selysie on Tumblr ^o^
  > jujutsu kaisen,
 
 >Beastars,
->hazbin hotel,
->Forsaken,
 >Adventure Time,
 >Steven Universe,
 >Alien Stage,
 >Dream world,
 >The Amazing World of Gumball,
 >The Amazing Digital Circus,
->Lifesteal smp,
 >multifandom yes ...
 
  check strawpage for more info! ![Shelly_Render webp](https://github.com/user-attachments/assets/2893c893-5d60-4e90-8785-c479f31187b9)
